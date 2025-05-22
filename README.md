@@ -1,2 +1,1 @@
-# Major-Project-8th-Sem
-team 13
+# Team-13-Major-Project-1
